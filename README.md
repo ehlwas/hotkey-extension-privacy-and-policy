@@ -1,0 +1,1 @@
+# hotkey-extension-privacy-and-policy
